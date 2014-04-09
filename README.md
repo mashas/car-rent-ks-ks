@@ -1,4 +1,3 @@
-car-rent-ks-ks
 ==============
 # KS-KS project #
 
