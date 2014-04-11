@@ -25,4 +25,4 @@
 3. Сахно Г.О.
 4. Скрипченко М.В.
 
-![Sakhnyasha](http://vk.com/doc55852962_287981380)
+![Sakhnyasha](file:///C:/Users/%D0%A1%D0%B0%D1%85%D0%BD%D1%8F%D1%88%D0%B0/Desktop/ht4uf4k2%20(1).png)
